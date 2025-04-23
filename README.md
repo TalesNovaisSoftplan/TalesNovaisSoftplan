@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @TalesNovaisSoftplan
+- 👋 Hi, I’m Tales Sathler Novais
 - 💻https://checklistfacil.com/
 - 💻https://www.softplan.com.br/
