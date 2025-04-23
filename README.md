@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TalesNovaisSoftplan
+- 💻https://checklistfacil.com/
+- 💻https://www.softplan.com.br/
